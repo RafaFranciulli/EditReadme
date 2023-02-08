@@ -24,6 +24,8 @@ At age 34, I traveled to Germany and worked for an Art Gallery. I lived there fo
 
 Mastery in iOS systems
 
+Adobe Premiere Pro & Adobe Suit
+
 ## Tools
 
 Garageband
